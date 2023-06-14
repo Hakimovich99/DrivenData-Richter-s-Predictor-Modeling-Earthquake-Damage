@@ -1,4 +1,4 @@
-# Welcome to the group 32
+# Welcome to the group 32 - WorkingBees
 
 The group members are the folowing:
 
